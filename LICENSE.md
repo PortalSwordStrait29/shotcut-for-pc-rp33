@@ -1,4 +1,4 @@
-# 
+# Shotcut for PC | Shotcut for Windows instant Effect: color-grading & noise-reduction is the best Shotcut for PC | Shotcut for Windows effect, featuring color-grading and
 
 
 
